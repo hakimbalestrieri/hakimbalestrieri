@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hakimbalestrieri
 - 👀 I have been interested in computers since I was very young. I remain curious about new technologies that are constantly emerging!
-- 💞️ I’m looking to collaborate on projects, write me your idea at the address below
+- 🏆 I’m looking to collaborate on projects, write me your idea at the address below
 - 📫 How to reach me : hakimbalestrieri@gmail.com
 
 <!---
